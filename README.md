@@ -1,1 +1,1 @@
-Rene Valenzuela-Maria Ponce- Esmeralda Montoya
+Rene Valenzuela-Maria Ponce- Esmeralda Montoya- Claudia Naranjo
